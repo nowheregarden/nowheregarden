@@ -1,0 +1,2 @@
+- **luc/kas | it/its or they/them | 25**
+- hobbyist programmer, webmaster, and artist. i really really like final fantasy xiv.
